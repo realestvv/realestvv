@@ -1,5 +1,5 @@
 # 💫 About Me:
-vv/vividsec/vivid<br>Not anything much here!<br>Based vim user
+vv/vividsec/vivid<br>Based fucking vim user
 
 
 ## 🌐 Socials:
